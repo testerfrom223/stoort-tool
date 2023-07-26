@@ -1,0 +1,1 @@
+codded by anon nukea took 5 min to code its too simple :)
